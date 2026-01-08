@@ -81,7 +81,7 @@ Any changes will be reflected by updating the “Last updated” date above.
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-Email: support@yourapp.com
+Email: support@sola-bible.com
 
 Terms of Use (EULA)
 
